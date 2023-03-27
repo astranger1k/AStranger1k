@@ -1,3 +1,2 @@
-### Sourcing locally based crack
-
-Inspired by your nan's toes
+### It would appear that internet footprints exist.
+I would like mine destroyed.
